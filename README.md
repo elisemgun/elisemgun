@@ -1,1 +1,1 @@
-![Velkommen!](https://github.com/user-attachments/assets/2bb700e0-57e0-4749-b2c9-52ca6f3eefc1)
+![Velkommen](https://github.com/user-attachments/assets/1e56bd18-aa8a-444d-8336-7bb27f18429d)
